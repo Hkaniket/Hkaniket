@@ -11,6 +11,6 @@
 - ⚡ Fun fact: I can turn a blank canvas into something exciting!  
 
 ## 📫 Get in Touch  
-📩 **Email:** [shravanrakeshsalvi@gmail.com](mailto:shravanrakeshsalvi@gmail.com)  
+📩 **Email:** [aniketyashwantmahajan@gmail.com](mailto: aniketyashwantmahajan@gmail.com)  
 
 Let's connect and create something awesome! 🚀🎨
